@@ -1,2 +1,2 @@
-# Pony-Town-Dandys-world-spot
+# Pony-Town
 When the neighbors argument sound good asf 👀...
